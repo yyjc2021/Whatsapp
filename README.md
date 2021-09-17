@@ -50,4 +50,4 @@ whatsapp安卓协议
 
 其他接口可按需增加
 联系方式:Q1531699711
-tg:https://t.me/h106548564
+tg:https://t.me/yyjc2029
